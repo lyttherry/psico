@@ -13,4 +13,17 @@ PSICOLÓGICO PARA TODAS AS IDADES </i></p>
       <p align=right><i>processo terapêutico para várias pessoas
 com dificuldades semelhantes as suas !
 podemos desenvolver habilidades sociais, demonstrar melhor seus
-sentimentos,comuni </i>
+sentimentos,comuncar-se de forma eficiente e ouvir o outro
+com mais atenção </i>
+
+<p align=center><b>CONSELHOS PROFISSIONAIS LICENCIADOS
+DISPONÍVEIS A QUALQUER MOMENTO</b> </p>
+<p align=center><i> Terapia individual</i> 
+
+<i> processo de reflexão, automaticamente, tratar problemas
+emocionais, fobias e dificuldades de relacionamento</i>
+
+<b> seg a sex-feira 7h00 às 21h00
+(obs: atendimentos psicológicos aos domingos 18h00)</b>
+
+<p align=center><b> AGENDE SUA CONSULTA! </b>
